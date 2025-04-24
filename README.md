@@ -64,7 +64,7 @@ Vous y trouverez :
 ## 📬 Contact
 
 📧 romain.gloria.kayak@gmail.com  
-📍 44230 Saint-Sébastien-sur-Loire  
+📍 44850 Mouzeil 
 🔗 [LinkedIn](https://www.linkedin.com/in/romain-gloria-9b88812bb/) – [Instagram](https://www.instagram.com/romaingloria/)
 
 ---
